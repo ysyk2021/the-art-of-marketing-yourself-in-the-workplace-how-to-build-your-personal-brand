@@ -1,5 +1,3 @@
-Dealing with Negative Feedback and Criticism
-============================================================================================
 
 Dealing with negative feedback and criticism is an inevitable part of building your personal brand and advancing your career. In this chapter, we'll explore strategies for dealing with negative feedback and criticism.
 

@@ -1,5 +1,3 @@
-Developing Your Visual Identity
-=================================================================================
 
 Developing your visual identity is an important part of creating a strong personal brand and communicating your unique value proposition effectively. In this chapter, we'll explore strategies for developing your visual identity.
 

@@ -1,5 +1,3 @@
-Managing Your Career Trajectory
-===========================================================================================
 
 Managing your career trajectory through personal branding is an important part of advancing your career and achieving your professional goals. In this chapter, we'll explore strategies for managing your career trajectory through personal branding.
 

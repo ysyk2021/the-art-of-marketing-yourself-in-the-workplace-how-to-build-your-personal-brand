@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Personal Branding
-==============================================================================================================
 
 Developing a personal branding mindset is essential for building a strong personal brand and advancing your career. In this chapter, we'll explore how developing empathy and compassion can help you develop a personal branding mindset and build stronger relationships with your audience.
 

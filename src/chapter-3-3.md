@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-=========================================================================================
 
 Developing a personal branding mindset involves setting realistic goals and objectives that align with your career aspirations and personal values. In this chapter, we'll explore strategies for setting realistic goals and objectives.
 

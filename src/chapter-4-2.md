@@ -1,5 +1,3 @@
-Developing Your Elevator Pitch
-====================================================================================
 
 Developing your elevator pitch is an important part of identifying your unique value proposition and communicating it effectively to others. In this chapter, we'll explore strategies for developing your elevator pitch.
 

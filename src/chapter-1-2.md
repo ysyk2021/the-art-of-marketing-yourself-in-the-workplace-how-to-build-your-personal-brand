@@ -1,5 +1,3 @@
-Common Misconceptions About Personal Branding
-======================================================================
 
 In this chapter, we will discuss some common misconceptions about personal branding. We will explore how these misconceptions can hinder individuals from developing a strong personal brand and achieving their career goals.
 

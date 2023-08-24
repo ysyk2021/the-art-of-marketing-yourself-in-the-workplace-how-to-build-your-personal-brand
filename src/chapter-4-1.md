@@ -1,5 +1,3 @@
-Understanding Your Strengths and Weaknesses
-=================================================================================================
 
 Identifying your unique value proposition is an important part of building a strong personal brand and advancing your career. In this chapter, we'll explore strategies for understanding your strengths and weaknesses and leveraging them to create a unique value proposition.
 

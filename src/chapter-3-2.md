@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=================================================================================================
 
 Developing a personal branding mindset involves utilizing positive self-talk and visualization to cultivate a confident and empowered mindset. In this chapter, we'll explore strategies for utilizing positive self-talk and visualization.
 

@@ -1,5 +1,3 @@
-Addressing Resistance and Skepticism
-====================================================================================
 
 Overcoming challenges and obstacles is an important part of building a strong personal brand and advancing your career. In this chapter, we'll explore strategies for addressing resistance and skepticism that you may encounter when building your personal brand.
 

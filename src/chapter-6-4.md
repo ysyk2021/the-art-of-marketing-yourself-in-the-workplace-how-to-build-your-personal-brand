@@ -1,5 +1,3 @@
-Building Relationships and Networking
-===================================================================================
 
 Building relationships and networking are essential components of communicating your personal brand effectively. In this chapter, we'll explore strategies for building relationships and networking to advance your career.
 

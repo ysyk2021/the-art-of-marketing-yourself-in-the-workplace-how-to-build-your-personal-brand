@@ -1,5 +1,3 @@
-Developing Strategies for Career Advancement
-========================================================================================================
 
 Developing strategies for career advancement is an essential part of advancing your career through personal branding. In this chapter, we'll explore strategies for developing a plan to advance your career.
 

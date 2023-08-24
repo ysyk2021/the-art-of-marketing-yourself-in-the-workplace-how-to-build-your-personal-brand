@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-===============================================================================================
 
 Measuring results and learning from experience is critical for building a strong personal brand and advancing your career. In this chapter, we'll explore strategies for measuring results, learning from experience, and adapting to changes in the workplace.
 

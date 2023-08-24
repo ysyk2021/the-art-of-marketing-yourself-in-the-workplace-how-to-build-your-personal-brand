@@ -1,5 +1,3 @@
-Preparing for Success
-================================
 
 Creating a Compelling Personal Brand
 ------------------------------------

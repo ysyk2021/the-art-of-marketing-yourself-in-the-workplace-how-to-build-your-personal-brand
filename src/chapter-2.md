@@ -1,5 +1,3 @@
-Chapter 2: Defining Personal Branding
-=====================================
 
 Defining personal branding is essential for building a strong personal brand and advancing your career. In this chapter, we'll provide an overview of personal branding, explore the science behind personal branding, and discuss how to assess your current personal brand.
 

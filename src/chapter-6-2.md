@@ -1,5 +1,3 @@
-Crafting Your Message
-===================================================================
 
 Crafting your message is an important part of communicating your personal brand effectively. In this chapter, we'll explore strategies for crafting a message that accurately reflects who you are and what you stand for.
 
