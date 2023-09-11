@@ -1,5 +1,4 @@
-Chapter: Developing Empathy and Compassion through Personal Branding
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential role of empathy and compassion in personal branding and how they can contribute to advancing your career. Developing these qualities not only enhances your personal brand but also fosters meaningful connections with colleagues, superiors, and clients. Let's delve into the ways you can cultivate empathy and compassion within your personal branding strategy.
 

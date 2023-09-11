@@ -1,5 +1,4 @@
-Chapter: Managing Your Personal Brand During Transitions
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively managing your personal brand during transitions in your career. Transitions can include changes in job roles, industries, or organizations. Successfully navigating these transitions requires careful attention to maintaining and evolving your personal brand. By proactively managing your personal brand during times of change, you can position yourself for success and ensure a smooth transition. Let's delve into the key strategies for managing your personal brand during transitions.
 

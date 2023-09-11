@@ -1,5 +1,4 @@
-Chapter: Tracking Progress and Measuring Results
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tracking your progress and measuring the results of your personal branding efforts in the workplace. Building your personal brand and advancing your career requires a strategic approach and continuous evaluation of your actions. By tracking your progress and measuring the outcomes, you can identify areas of improvement, make informed decisions, and ensure that your efforts are aligned with your goals. Let's delve into the key aspects of tracking progress and measuring results.
 
